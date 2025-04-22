@@ -1,7 +1,1 @@
-Quando eu comecei a procurar formas de ganhar dinheiro em casa, tudo o que eu queria era uma chance. Eu via anúncios prometendo lucros absurdos com pouco esforço e, como muita gente, caí. Paguei por “cursos milagrosos” que só ensinavam o óbvio, entrei em esquemas que pareciam promissores, mas que sumiram da noite pro dia. Teve vezes em que perdi mais de R$ 300 em promessas vazias — dinheiro que eu juntei com muito esforço.
 
-Confesso: pensei em desistir várias vezes. A frustração era grande, e eu já não sabia em quem confiar. Até que um dia, meio sem esperança, resolvi apostar pela última vez. Encontrei uma pessoa simples, que mostrava resultados reais e falava a verdade, sem enrolação. Diferente dos outros, ela me mostrou o caminho passo a passo — sem prometer riqueza fácil, mas sim um plano que realmente funcionava, com dedicação e estratégia.
-
-A partir dali, tudo mudou. Aprendi sobre marketing digital, redes sociais, criação de conteúdo e, principalmente, como ajudar outras pessoas a evitarem os mesmos erros que eu cometi. Foi assim que nasceu o Império Home Office. Hoje, além de trabalhar de casa com liberdade e autonomia, eu ensino outras pessoas a construírem sua própria renda, com verdade e responsabilidade.
-
-Se você já caiu em golpes, perdeu dinheiro ou sente que está sozinha nessa jornada, saiba: eu entendo. E eu estou aqui pra te mostrar que existe, sim, um caminho possível — e honesto.
